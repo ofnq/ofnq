@@ -18,7 +18,7 @@ i don't necessarily agree with or support everything posted by the people i foll
 <details>
 <summary>♡ concerns / issues</summary>
 
-[dm me](https://discord.com/users/1524545172283588678) if someone i follow is problematic, cancelled, or involved in something concerning. i may not be aware of everything.
+dm me if someone i follow is problematic, cancelled, or involved in something concerning. i may not be aware of everything.
 
 </details>
 
